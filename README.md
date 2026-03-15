@@ -8,7 +8,6 @@ MPA candidate at Columbia SIPA (graduating May 2026), focused on **energy financ
 
 - **Columbia Climate School** — TA, International Climate Finance
 - **Silver Leaf Partners** — Sustainable Finance Analyst (Summer 2025)
-  - Built financial models for clean energy projects; $50M+ fundraising pipeline
 - **Control Risks / Trivium China** — Strategic Advisory, China market risk (2023)
 - **CITIC Securities** — Energy market research (2022)
 
